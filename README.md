@@ -10,7 +10,8 @@
 
 ## 📢 最新消息
 
-<img width="1548" alt="image" src="https://github.com/Wangs-official/CodemaoCommunity-Mourning-Hall/assets/131328257/5df8e7f1-f820-4b41-ab0e-abedee13982c">
+<img width="1920" alt="image" src="https://github.com/CodemaoCommunityHistory/CodemaoCommunity-Mourning-Hall/assets/131328257/4dd02a13-3cca-409c-b38f-3d6787b90bf4">
+
 
 不知道什么时候，编程猫社区**发现页面** (https://shequ.codemao.cn/discover/) 作品全清。这或许是编程猫社区最后一次出现在大家的面前了
 
