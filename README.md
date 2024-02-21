@@ -18,3 +18,9 @@
 ## 😱 点号事件
 
 目前，**初小白，WangZixu，花花（Nemo群管理），程方宇**的QQ惨遭点号，没有任何规律，有待考究
+
+## 💥 Nemo群炸了
+
+<img width="412" alt="image" src="https://github.com/CodemaoCommunityHistory/CodemaoCommunity-Mourning-Hall/assets/131328257/c832fdf6-72c0-4483-a73e-a9f468f7d3eb">
+
+2024.2.21 09:09 群被炸了
